@@ -1,1 +1,1 @@
-## Outdated. Check new portfolio site [here](kennethkreindler.com)
+## Outdated. Check new portfolio site [here](http://kennethkreindler.com)
